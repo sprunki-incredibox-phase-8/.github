@@ -35,10 +35,6 @@ To add a mod to Sprunki Phase 8, you need to download it from the internet. Once
 
 Yes, you could! Making your very own mod is surely amusing. You can create new characters, new gadgets, and even new places to discover. You can proportion your mod with different human beings, so one can play with it too.
 
-### 4. What is the density of Sprunki Phase 8?
-
-The density of Sprunki Phase 8 is between 3% and 5%. This manner that the game has simply the right amount of stuff in it. It's no longer too crowded, and it is not too empty. It's simply perfect!
-
 ### 5. Is Sprunki Phase 8 clean to play?
 
 Yes, Sprunki Phase 8 is sincerely clean to play. You can pick out which mods you want to play, and you could make the sport easier or tougher, depending on what you want. The recreation is designed to be amusing for everybody, irrespective of how exact you are at playing games.
